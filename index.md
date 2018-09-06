@@ -1,3 +1,3 @@
-# Welcome to my blog
+# HEY
 
-I'm glad you are here. I plan to talk about ...
+im da best
